@@ -1,1 +1,0 @@
-# anchike-osu-skins
